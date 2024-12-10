@@ -1,1 +1,2 @@
 # samoelson
+**ericsamoelson@gmail.com**
